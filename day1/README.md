@@ -1,0 +1,1 @@
+Done withput sorting the array and just checking everything so its quite slow.
