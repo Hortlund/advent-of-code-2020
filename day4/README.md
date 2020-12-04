@@ -1,0 +1,1 @@
+Got stuck here aswell, but leaened alot, didnt make 2nd challenge. Thanks again reddit.
